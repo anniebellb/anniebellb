@@ -1,16 +1,19 @@
-## Hi there 👋
+## Hiya ♡
 
-<!--
-**anniebellb/anniebellb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+How lovely of you to stop by — truly, what a treat.
 
-Here are some ideas to get you started:
+I’m a Learning Experience Designer crafting wicked experiences & products. From transformative learning journeys to the fine art of *vibe coding*, I dabble in all things research & beautifully designed. Currently teaching myself to bring pixels to life — one commit at a time — and occasionally speaking fluent Figma.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Stick around for side projects, accidental breakthroughs, & the occasional moment of brilliance.
+
+### Credentials
+• Duke University & BYU  
+• M.S. Instructional Psychology & Technology  
+• B.A. Product Design
+
+### Annie in a Nutshell  
+• [Music](https://open.spotify.com/playlist/7DXIncNeTBFUwMsNEOO0ie?si=188ab0ace79f4b12)  
+• [Style](https://www.pinterest.com/anniekielebellbrown/fashion/)  
+• [Belief](https://www.churchofjesuschrist.org/?lang=eng)  
+• [Creating](https://anniekielebrown.webflow.io/)  
+• [Thinking](https://substack.com/@anniekielebrown?utm_campaign=profile&utm_medium=profile-page)
