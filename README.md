@@ -8,7 +8,7 @@ I’m a Learning Experience Designer crafting wicked experiences & products. Fro
 • M.S. Instructional Psychology & Technology  
 • B.A. Product Design
 
-### Annie in a Nutshell  
+### Me in a Nutshell  
 • [Music](https://open.spotify.com/playlist/7DXIncNeTBFUwMsNEOO0ie?si=188ab0ace79f4b12)  
 • [Style](https://www.pinterest.com/anniekielebellbrown/fashion/)  
 • [Belief](https://www.churchofjesuschrist.org/?lang=eng)  
