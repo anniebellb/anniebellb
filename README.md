@@ -1,8 +1,8 @@
 ## Hiya ♡
 
-How lovely of you to stop by — truly, what a treat.
+How lovely of you to stop by.
 
-I’m a Learning Experience Designer crafting wicked experiences & products. From transformative learning journeys to *vibe coding*, I dabble in all things research & design. Currently teaching myself to bring pixels to life and occasionally speaking fluent Figma. Stick around for side projects & accidental breakthroughs.
+I’m a Learning Experience Designer crafting wicked experiences & products. From transformative learning journeys to *vibe coding*, I dabble in all things research & design. Stick around for side projects & accidental breakthroughs.
 ### Credentials
 • Duke University & BYU  
 • M.S. Instructional Psychology & Technology  
