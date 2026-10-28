@@ -12,5 +12,4 @@ I’m a UX Researcher & LXD crafting wicked products & experiences. From transfo
 • [Music](https://open.spotify.com/playlist/7DXIncNeTBFUwMsNEOO0ie?si=188ab0ace79f4b12)  
 • [Style](https://www.pinterest.com/anniekielebellbrown/fashion/)  
 • [Belief](https://www.churchofjesuschrist.org/?lang=eng)  
-• [Designing](https://anniekielebrown.webflow.io/)  
-• [Thinking](https://substack.com/@anniekielebrown?utm_campaign=profile&utm_medium=profile-page)
+• [Designing](https://bcurio.com/)  
