@@ -2,7 +2,7 @@
 
 How lovely of you to stop by.
 
-I’m a UX Researcher & LXD crafting wicked products & experiences. From transformative learning journeys to *vibe coding*, I dabble in all things research & design. Stick around for side projects & spontaneous breakthroughs.
+I’m a UXR & LXD who builds learning products. From transformative experiences to *vibe coding*, I dabble in all things creative. Stick around for side projects & spontaneous breakthroughs.
 ### Credentials
 • Duke University & BYU  
 • M.S. Instructional Psychology & Technology  
